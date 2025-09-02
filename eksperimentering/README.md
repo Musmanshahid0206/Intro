@@ -1,2 +1,2 @@
 ** Litt om meg**
-- Liker fotball
+- Liker fotball, og spiller på Nordstrand fotball klubb.
